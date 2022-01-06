@@ -1,0 +1,2 @@
+# Bamboo
+Bamboo culm characteristics
